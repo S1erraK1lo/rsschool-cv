@@ -1,1 +1,2 @@
-# rsschool-cv
+# https://s1errak1lo.github.io/rsschool-cv/cv
+# https://s1errak1lo.github.io/rsschool-cv/
