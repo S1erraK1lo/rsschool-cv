@@ -12,7 +12,7 @@ I am a motivated person with a strong desire to grow professionally. I am curren
 ***
 
 ##### 1. IT skills
-Currently developing my skills in the IT field      through self-study and practical learning.
+Currently developing my skills in the IT field through self-study and practical learning.
 
 ***
 
